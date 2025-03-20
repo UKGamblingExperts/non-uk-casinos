@@ -7,10 +7,10 @@ For players seeking alternatives to UK-licensed casinos, non-UK casino sites pro
 
 | Rank | Casino | Rating | Welcome Bonus |
 |------|--------|--------|---------------|
-| #1 | [**SOMBREROSPINS**](https://bit.ly/sombrerospins-uk) | 4.9/5 ⭐| 250% up to £10,000 + 20% daily Cashback |
-| #2 | [**NALUCASINO**](https://bit.ly/nalucasino-uk) | 4.8/5 ⭐ | up to £1,200 |
-| #3 | [**GXSPIN**](https://bit.ly/gxspin-uk) | 4.8/5 ⭐ | 120% up to £5,000 + 125 Free Spins |
-| #4 | [**TIKTAKBET**](https://bit.ly/tiktakbet-uk) | 4.7/5 ⭐| 250% up to £10,000 + 20% daily cashback |
+| #1 | [**SOMBREROSPINS**](https://bit.ly/sombrerospins-ukk) | 4.9/5 ⭐| 250% up to £10,000 + 20% daily Cashback |
+| #2 | [**NALUCASINO**](https://bit.ly/nalucasino-ukk) | 4.8/5 ⭐ | up to £1,200 |
+| #3 | [**GXSPIN**](https://bit.ly/gxspin-ukk) | 4.8/5 ⭐ | 120% up to £5,000 + 125 Free Spins |
+| #4 | [**TIKTAKBET**](https://bit.ly/tiktakbet-ukk) | 4.7/5 ⭐| 250% up to £10,000 + 20% daily cashback |
 
 ## What Are Non UK Casinos?
 
